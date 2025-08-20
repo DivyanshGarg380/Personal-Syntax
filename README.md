@@ -1,1 +1,4 @@
-Usage for CP and other codes :)
+Just some creativity :) 
+
+Credits:
+Chester King 
